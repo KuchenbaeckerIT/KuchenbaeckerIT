@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @KuchenbaeckerIT 🍰
-- 📫 You can reach me via aleksej@kuchenbaecker.it
+- 📫 You can reach me via info@kuchenbaecker.it
